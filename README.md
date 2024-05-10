@@ -1,6 +1,5 @@
-### Hi there 👋
+### Hi there 👋, My name is Uttara Ghosh
 
-### Hi there 👋, my name is Uttara Ghosh
 #### Professional Web Designer & a Web Developer
 ![Professional Web Designer & a Web Developer](C:\Users\uttar\OneDrive\Pictures\Screenshots\Screenshot 2024-04-15 220023.png)
 
